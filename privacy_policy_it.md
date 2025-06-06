@@ -36,4 +36,4 @@ Potremmo aggiornare questa Informativa sulla privacy di tanto in tanto. Se appor
 
 Se hai domande o dubbi riguardo questa Informativa sulla privacy o le nostre pratiche, non esitare a contattarci a:
 
-michelettiluka@gmail.com
+mathorgadaorc@gmail.com
